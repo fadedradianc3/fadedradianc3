@@ -6,3 +6,5 @@
 ·˚ ༘₊· ͟͟͞͞꒰➳ Minor , Esc kin , hollysugar dni !
 
 ·˚ ༘₊· ͟͟͞͞꒰➳ Usually offtab, w2i is okay, idm c+h either just make sure my skin doesnt say iwc or dni <3
+
+                                                              <img width="736" height="736" alt="esc__fliter--green-pink-acid__channel--red__mode--multiply" src="https://github.com/user-attachments/assets/b04ee2d0-0f90-40bd-92b7-652fcca1f3b7" />
